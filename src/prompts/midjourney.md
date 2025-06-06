@@ -1,0 +1,1 @@
+create a realistic cartoon character for a tech podcaster cover he should be a man with a beard wearing headphones and a pc desktop microphone, game style, downward angle, game boy colors, retro sprites --ar 1:1
